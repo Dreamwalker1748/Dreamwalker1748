@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dreamwalker1748
+- 👋 Hi, I’m CHADWICK HORACE 
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning how to be a expert in technology 
 - 💞️ I’m looking to collaborate on technology 
